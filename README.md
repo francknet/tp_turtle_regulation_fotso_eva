@@ -1,1 +1,0 @@
-# tp_turtle_regulation_fotso_eva
